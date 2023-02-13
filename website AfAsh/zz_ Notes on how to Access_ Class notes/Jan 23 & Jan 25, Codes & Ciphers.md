@@ -1,0 +1,2 @@
+-   ~~Mak~~ [[Dooley]] - chapter 1 (v. short); chapter 2 if you're interested
+-   today's slides are [here](https://shawngraham.github.io/hist1900/assets/slides/jan23)
